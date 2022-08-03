@@ -1,4 +1,3 @@
-### Oi, eu sou o Gleybson
-:sunglasses:
+### Oi, eu sou o Gleybson  :sunglasses:
 
 
